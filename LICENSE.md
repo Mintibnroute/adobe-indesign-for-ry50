@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS premium Template - UI themes and custom brushes offers the most advanced Adobe InDesign for macOS template, with UI themes and custom brushes. Ideal for
 
 
 
